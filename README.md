@@ -1,3 +1,3 @@
 - Hi, I’m @5urpriser, welcome to my GitHub page.
 - I study Media Communication and Computer Sciences and focus on cyber security.
-- I’m also interested in social engineering, D&D, web developemnt, Gaming, ricing and most importantly: Döner 🥙
+- I’m also interested in social engineering, D&D, web development, gaming, ricing and most importantly: Döner 🥙
